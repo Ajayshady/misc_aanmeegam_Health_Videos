@@ -50,3 +50,15 @@ This is Full Of AANMEEGAM Vidoes But Not Only Person's It Is All Mix
 ### Accupunture Doctor Parimala Selvi
 * [Refer Here](https://www.youtube.com/shorts/7hORsROH6-M)
 * phone number - 7708211515 
+
+## Siddha physician Dr.Nithya 
+### for skin problem all types 
+* [Refer Here](https://www.youtube.com/watch?v=yugWfJpXQYE)
+
+## Flower Medicine Therapist 
+* [Refer Here](https://www.youtube.com/shorts/puK1xoIlhco)
+
+## Astrology Brinda 
+* this astrology madam is also very good 
+* FOR CONSULTATION : (Astrologer Brindha) Contact : 7373092818
+* [Refer Here](https://www.youtube.com/watch?v=Xm8mzbM9KZU)
