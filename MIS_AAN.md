@@ -51,10 +51,6 @@ This is Full Of AANMEEGAM Vidoes But Not Only Person's It Is All Mix
 * [Refer Here](https://www.youtube.com/shorts/7hORsROH6-M)
 * phone number - 7708211515 
 
-## Siddha physician Dr.Nithya 
-### for skin problem all types 
-* [Refer Here](https://www.youtube.com/watch?v=yugWfJpXQYE)
-
 ## Flower Medicine Therapist 
 * [Refer Here](https://www.youtube.com/shorts/puK1xoIlhco)
 
@@ -62,3 +58,19 @@ This is Full Of AANMEEGAM Vidoes But Not Only Person's It Is All Mix
 * this astrology madam is also very good 
 * FOR CONSULTATION : (Astrologer Brindha) Contact : 7373092818
 * [Refer Here](https://www.youtube.com/watch?v=Xm8mzbM9KZU)
+
+### Cosmic Health Care Contact Details
+* [Refer Here](https://cosmohealth.in/doctors)
+
+###  Ethnic Health Care Dr. B.Yoga Vidhya B.S.M.S 
+* To stop smoking 
+* [Refer Here](https://www.youtube.com/watch?v=ec4ADUBgDt0)
+#### Grey Hair
+* [Refer Here](https://www.youtube.com/watch?v=0muUECkrcKo)  
+
+### Wellness Guruji
+* to convert premature grey hair into black 
+* [Refer Here](https://www.youtube.com/watch?v=MXmR3_LBJSA)
+
+### Hair oil for grey hair
+* [Refer Here](https://www.youtube.com/watch?v=IgfzKvhfHkk)
