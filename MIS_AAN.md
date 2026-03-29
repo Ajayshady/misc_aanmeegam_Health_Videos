@@ -74,3 +74,30 @@ This is Full Of AANMEEGAM Vidoes But Not Only Person's It Is All Mix
 
 ### Hair oil for grey hair
 * [Refer Here](https://www.youtube.com/watch?v=IgfzKvhfHkk)
+
+### Very important video 
+* [Refer Here](https://www.youtube.com/shorts/4y8duuMwBNY)
+* this tells all the problems of human what is the medicine with our fruits and leaves/keerai
+* should be always young `>` gooseberry
+* heart strength `>` hibiscus 
+* knee pain `>` Mudakathan Keerai
+* kafa nose `>` karupooram vali
+* mouth/stomach ulcer `>` Manathakkali Keerai
+* blood purifier `>` Arugampul
+* heart block `>` Pomegranate
+* cancer `>` Custard Apple (Seetha Palam)
+* digestive `>` pineapple
+* motion problem `>` papaya
+* Asthma `>` Adathodai
+* gastric problem `>` Vendhaya Keerai / Menthya Soppu
+* memory power `>` Vallarai Keerai
+* BP `>` Pasalai keerai
+* digestive problem `>` pudina
+* black hair `>` drumstick leaves
+* face glow `>` black grapes
+* body glow `>` Ponnaganni keerai
+* chest kafa `>` Sundakkai
+* eye sight good `>` carrot
+* blood `>` Beetroot 
+* keera nali `>` Jaundice
+* kidney stone `>` Vazhai thandu
