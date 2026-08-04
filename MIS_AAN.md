@@ -1,25 +1,19 @@
 This is Full Of AANMEEGAM Vidoes But Not Only Person's It Is All Mix
 --------------------------------------------------------------------
 
-### Person Find the Kuladeivam
-* [Refer Here](https://www.youtube.com/shorts/Nlh2VJli0Qc)
-
-### Vole chodi and nadi astrology 
-* [Refer Here](https://www.youtube.com/watch?v=dib58cyPXyI)
-
-### Ayurveda medicines for all the dieses kanmani subbu
-* [Refer Here](https://www.youtube.com/shorts/s3eq6VGMMZo)   
 
 ### All planet temples 
 * [Refer Here](https://www.youtube.com/shorts/emLOsKCq2vo)
 
 ### Jaguar Thangam Health Tips
-* Skin Glow
-* lips care
-* yogasans 
+* [Refer Here](https://www.youtube.com/watch?v=dpHopVR16Hk)
+  * Skin Glow
+  * lips care
+  * yogasans 
   * entire body pain 
   * many things he told 
-* [Refer Here](https://www.youtube.com/watch?v=dpHopVR16Hk)
+* [Refer Here](https://www.youtube.com/shorts/qV0MyQjpx5k)
+   * Jaguar Thangam improve hanmai thanam it will lead for long we can do for 1 hour half an hour
 
 ### Very important videos types disease they are clearing it
 * bogar mooligai siddha vaithiyasalai 
@@ -39,17 +33,7 @@ This is Full Of AANMEEGAM Vidoes But Not Only Person's It Is All Mix
 
 ### sinus problem from dr verrababu hospital Sri Bohgar Sugalaya
 * [Refer Here](https://www.youtube.com/shorts/KGSckj6kvWc)
-
-### vole chudi nadi jothidam in vaitheshwaran kovil
-* [Refer Here](https://www.youtube.com/watch?v=-yDCPr795F8)
-* [Refer Here](https://www.youtube.com/watch?v=MPEhcTvuVnc)
-
-### Jaguar Thangam improve hanmai thanam it will lead for long we can do for 1 hour half an hour 
-* [Refer Here](https://www.youtube.com/shorts/qV0MyQjpx5k)
-
-### Accupunture Doctor Parimala Selvi
-* [Refer Here](https://www.youtube.com/shorts/7hORsROH6-M)
-* phone number - 7708211515 
+* SUGALAYA `>` 9994724123
 
 ## Flower Medicine Therapist 
 * [Refer Here](https://www.youtube.com/shorts/puK1xoIlhco)
@@ -63,19 +47,12 @@ This is Full Of AANMEEGAM Vidoes But Not Only Person's It Is All Mix
 * [Refer Here](https://cosmohealth.in/doctors)
 
 ###  Ethnic Health Care Dr. B.Yoga Vidhya B.S.M.S 
-* To stop smoking 
 * [Refer Here](https://www.youtube.com/watch?v=ec4ADUBgDt0)
-#### Grey Hair
+  * To stop smoking 
 * [Refer Here](https://www.youtube.com/watch?v=0muUECkrcKo)  
+  * Grey Hair
 
-### Wellness Guruji
-* to convert premature grey hair into black 
-* [Refer Here](https://www.youtube.com/watch?v=MXmR3_LBJSA)
-
-### Hair oil for grey hair
-* [Refer Here](https://www.youtube.com/watch?v=IgfzKvhfHkk)
-
-### Very important video 
+### Very important Film Shorts video 
 * [Refer Here](https://www.youtube.com/shorts/4y8duuMwBNY)
 * this tells all the problems of human what is the medicine with our fruits and leaves/keerai
 * should be always young `>` gooseberry
@@ -101,3 +78,15 @@ This is Full Of AANMEEGAM Vidoes But Not Only Person's It Is All Mix
 * blood `>` Beetroot 
 * keera nali `>` Jaundice
 * kidney stone `>` Vazhai thandu
+
+### Vadapalani PUTTUR KATTU
+`9600138700/9840196011/9791671392`
+* DR RS. velmani
+* https://www.youtube.com/watch?v=UQjb94dNZvw `>` dr velmani is talking about ligament tear 
+* https://www.youtube.com/watch?v=xEBEZa6ejCE `>` dr velmani is talking about particular Ligement Tear Treatment and causes 
+* https://www.youtube.com/watch?v=vGbMEUXFHf0 `>` dr velmani explain about bone facture 
+
+### mohammed zuzia uddin Ayurvedic Doctor For All Kind Of Problems 
+* Phone `>` 7358481722
+* https://www.youtube.com/watch?v=d-gD7xsdosI `>` about hair explained 
+* https://www.youtube.com/watch?v=uGSHcepuk7c `>` about fairness explained 
