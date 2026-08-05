@@ -82,11 +82,26 @@ This is Full Of AANMEEGAM Vidoes But Not Only Person's It Is All Mix
 ### Vadapalani PUTTUR KATTU
 `9600138700/9840196011/9791671392`
 * DR RS. velmani
+* Bangalore Address
+```
+RS Velumani sidha Ayurvedha Hospital.
+Puttur kattu bone & joint centre.(Specialist)
+No-41/1.Ramakrishna nagar,
+Kanagapura main road,
+(Opp)-Maya indhraprastha,
+Metro pillar no-68.
+JPNagar (p.o)
+Bangalore-560078.
+Mob-9789875700.
+``` 
 * https://www.youtube.com/watch?v=UQjb94dNZvw `>` dr velmani is talking about ligament tear 
 * https://www.youtube.com/watch?v=xEBEZa6ejCE `>` dr velmani is talking about particular Ligement Tear Treatment and causes 
 * https://www.youtube.com/watch?v=vGbMEUXFHf0 `>` dr velmani explain about bone facture 
 
-### mohammed zuzia uddin Ayurvedic Doctor For All Kind Of Problems 
-* Phone `>` 7358481722
+### Ubomi 4.0 lifecare holistic clinic 
+* mohammed zuzia uddin Ayurvedic Doctor For All Kind Of Problems 
+* Address `>` Sun Plaza, G.N.Chetty Road,  Teynampet, Chennai, Tamil Nadu 600006
+* Phone `>` 7358481722,7305647664 
+* Working Hours Sir Is Available `From Tuesday to Saturday`
 * https://www.youtube.com/watch?v=d-gD7xsdosI `>` about hair explained 
 * https://www.youtube.com/watch?v=uGSHcepuk7c `>` about fairness explained 
