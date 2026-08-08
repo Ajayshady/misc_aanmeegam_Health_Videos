@@ -12,6 +12,7 @@ This is Full Of AANMEEGAM Vidoes But Not Only Person's It Is All Mix
   * yogasans 
   * entire body pain 
   * many things he told 
+  * Sleeping 
 * [Refer Here](https://www.youtube.com/shorts/qV0MyQjpx5k)
    * Jaguar Thangam improve hanmai thanam it will lead for long we can do for 1 hour half an hour
 
