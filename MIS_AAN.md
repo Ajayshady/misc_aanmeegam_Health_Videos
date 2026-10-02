@@ -36,6 +36,12 @@ This is Full Of AANMEEGAM Vidoes But Not Only Person's It Is All Mix
 * [Refer Here](https://www.youtube.com/shorts/KGSckj6kvWc)
 * SUGALAYA `>` 9994724123
 
+### Bohgar sugalaya has given useful yogas
+* three types of yoga mudras
+* breathing holding yoga
+* as per horse hassana vahi holding yoga
+* [Refer Here](https://www.youtube.com/watch?v=ZuAt0s16yww)
+
 ## Flower Medicine Therapist 
 * [Refer Here](https://www.youtube.com/shorts/puK1xoIlhco)
 
@@ -106,3 +112,8 @@ Mob-9789875700.
 * Working Hours Sir Is Available `From Tuesday to Saturday`
 * https://www.youtube.com/watch?v=d-gD7xsdosI `>` about hair explained 
 * https://www.youtube.com/watch?v=uGSHcepuk7c `>` about fairness explained 
+
+
+###  Dietitian Dharini Krishnan Important Videos
+#### About Hair Care
+* [Refer Here](https://www.youtube.com/watch?v=Jd2o0KvNBlI) 
