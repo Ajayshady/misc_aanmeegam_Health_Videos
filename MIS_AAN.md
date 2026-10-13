@@ -53,12 +53,6 @@ This is Full Of AANMEEGAM Vidoes But Not Only Person's It Is All Mix
 ### Cosmic Health Care Contact Details
 * [Refer Here](https://cosmohealth.in/doctors)
 
-###  Ethnic Health Care Dr. B.Yoga Vidhya B.S.M.S 
-* [Refer Here](https://www.youtube.com/watch?v=ec4ADUBgDt0)
-  * To stop smoking 
-* [Refer Here](https://www.youtube.com/watch?v=0muUECkrcKo)  
-  * Grey Hair
-
 ### Very important Film Shorts video 
 * [Refer Here](https://www.youtube.com/shorts/4y8duuMwBNY)
 * this tells all the problems of human what is the medicine with our fruits and leaves/keerai
