@@ -163,6 +163,10 @@ Keyaar Lifestyle Beauty Products like Hair and Skin Care for anti aging skin and
 * Scrub
 ### Lip balm and lipstick for pink products
 * [Refer Here](https://www.youtube.com/watch?v=f4RM7_gqxGA)
+  * Lip Balm for Women: Strawberry, Rose, Mixed Fruit, and Beetroot
+  * Lipstick for Women: Pink, Red, Peach, Brown, and Orange
+  * Lip Balm for Men: Rose and Mixed Fruit
+  * Lip Serum for Men & Women: Suitable for both men and women
 ### Thooth powder products
 * [Refer Here](https://www.youtube.com/watch?v=HdVG8sFo_Gg)
 ### Hair gel for dandruff hair fall and hair growth
