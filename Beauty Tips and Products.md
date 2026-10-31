@@ -27,7 +27,7 @@ Keyaar Lifestyle Beauty Products like Hair and Skin Care for anti aging skin and
 
 `Extract fresh coriander (கொத்தமல்லி) juice and mix it with cornflour and milk powder. Add a few drops of almond oil or olive oil. Mix well to form a smooth paste and apply it to your face.`
 
-### DARK SPOTS, ACNE SCARS, piple,pors, marks, PIGMENTATION in just 3 Days
+### DARK SPOTS, ACNE SCARS, pimples, pores, marks, PIGMENTATION in just 3 Days
 * [Refer Here](https://www.youtube.com/watch?v=o7DDul0RnZc)
 ####  Skincare Products Mentioned
 * Rice Cream: For face brightening.
@@ -185,6 +185,13 @@ Keyaar Lifestyle Beauty Products like Hair and Skin Care for anti aging skin and
 * [Refer Here](https://www.youtube.com/watch?v=iaX54954oZ8)
 ### Hair dye old style
 * [Refer Here](https://www.youtube.com/watch?v=9-74BwdcDCQ)
+
+### Skin whitening for babies and kids
+* [Refer Here](https://www.youtube.com/watch?v=JPshNoik5yA)
+* Explained about home and also products for skin whitening for babies and kids
+
+### within 7 days Skin Whitening & Brightening Pack which pors acene pimple scars everything will go home made and no products in this video only home remedies
+* [Refer Here](https://www.youtube.com/watch?v=95w2dJvGN5k) 
 
 ---
 
